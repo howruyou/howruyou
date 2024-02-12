@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @howruyou
 - 👀 I’m interested in unity
 - 🌱 I’m currently learning unity
-- 💞️ I’m looking to collaborate on not yet
+- 💞️ I’m looking to collaborate on..
 - 📫 How to reach me jiho55839@gmail.com
 - 😄 Pronouns: he
 - ⚡ Fun fact: i'm student
